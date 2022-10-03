@@ -1,0 +1,2 @@
+# Kinghelmy
+Sebelum membahas lebih lanjut tentang bagaimana anda bisa menggunakan ilmu hipnotis dalam bidang sesualitas, pertama saya akan mengajak anda untuk memahami dulu mengenai seluk beluk hipnotis, hipnotis terselubung dan seksualitas. Setelah anda memahami prinsip penting dari ketiga hal tersebut, anda kemudian akan siap untuk pembahasan yang lebih mendetail dan esensial dari paket HipnoGasm ini.
